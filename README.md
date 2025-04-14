@@ -1,1 +1,1 @@
-Just a Comman Man who loves codeing and cybersecurity 
+Just a Comman Man who loves coding and cybersecurity 
